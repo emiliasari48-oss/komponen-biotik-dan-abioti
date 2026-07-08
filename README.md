@@ -1,0 +1,1 @@
+# komponen-biotik-dan-abioti
